@@ -1,0 +1,2 @@
+# Saidov-Zoir
+Tushintirish xati
